@@ -1,1 +1,7 @@
-# FirstRep
+- 👋 Hi, I’m @Crazzyfreak100
+- 👀 I’m interested in ... stuff.
+- 🌱 I’m currently learning ... more stuff.
+- 💞️ I’m looking to collaborate on ... cool .
+- 📫 How to reach me ... contact stuff.
+- 😄 Pronouns: ...Stuffmister.
+- ⚡ Fun fact: ... I like stuff.
